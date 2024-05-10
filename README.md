@@ -1,1 +1,8 @@
-# portfolio
+# Francis Seely
+
+## Goals
+
+## Projects
+
+## Education
+
